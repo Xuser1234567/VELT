@@ -1,0 +1,1 @@
+The website of VELT video editing-logo designer-thumbnail designer is an easy access website with only $1 for logo and thumbnail esign and $2 for video editing we combined proffesional art and low budget = VELT
